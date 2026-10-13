@@ -1,4 +1,4 @@
-## OLAMIKSIBE BRIGHT
+## Hi I'M OLAMIKSIBE BRIGHT
 
 <!--
 **olamipo-io/olamipo-io** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
